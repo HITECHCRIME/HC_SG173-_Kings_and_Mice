@@ -40,4 +40,31 @@ Description.
 
 ## Notes
 
+MOTHNODE_ Kings and Mice (prod. NetuH)
+
+/// Cinematic Narrative Universe of @hitechcrime | Audiovisual Microlabel⁣
+⁣
+/// DIRECTOR OPERATIVE_ @mothnode⁣
+⁣
+/// This is a practice solo music video made on a phone with a purpose of just staying creative and doing something while I make moves towards getting an audiovisual workstation PC. It’s been 2 months without any tech, trying to get myself occupied.⁣
+⁣
+/// True agents of Hitech Crime comment with ]| symbol underneath to your show your flair. Stay in contact with the HQ.⁣
+⁣
+/// TARGET_ MOTHNODE_ Kings and Mice⁣
+/// STATUS_ Song Prototype HC_SG173⁣
+⁣
+/// BEAT_ @netuhbeats⁣
+⁣
+/// LYRICAL CONTENT_⁣
+⁣
+no signs, no hope⁣
+my sight is gone x2⁣
+⁣
+foretold stories like a roll of dice, ⁣
+kings and mice clash till the blood runs cold⁣
+for a time all’s lost, in the mist of the blind ⁣
+we fear the most (of our lives)⁣
+⁣
+/// NODE STEMS_ #trapmusic #storytelling #polishrap #polishtrap #darktrap #hitechcrime #prototype #musicvideo #trap #rap #newmusic #mothnode #polskirap #trapcore #polskiraper #polskitrap #trapmetal #metal
+
 ## Music Video
